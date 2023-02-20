@@ -1,1 +1,1 @@
-Some Randon Texts
+Some Random Texts
